@@ -8,4 +8,4 @@ Fun Facts:
  - I love to crochet
  - I play badminton
  - I love Demon slayer cuz it's the best(my favourite character is probably Zenitsu, if you're favourite isn't Zenitsu then you haven't watched Infinity Castle)
- - I use linux mint right now, and I love linux a lot.
+ - I use linux mint right now(but I want to switch to Arch), and I love linux a lot.
